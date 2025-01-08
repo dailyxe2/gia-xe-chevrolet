@@ -46,7 +46,7 @@
 
 <p>Với bản LTZ của Aveo thì sử dụng động cơ 1.4L hộp số tự động, sử dụng nội thất nỉ, được trang bị thêm cánh gió lướt sau thể thao giúp dáng vẻ Aveo bắt mắt hơn. Phiên bản LTZ này còn được trang bị màn hình cảm ứng với công nghệ MyLink toàn cầu.</p>
 
-<p>*** Xem ngay <a href="https://forum.kajgana.com/members/ryanshakira.171956/about" title="Mua ô tô cũ"><strong>Mua ô tô cũ</strong></a> mới nhất vừa được DailyXe cập nhật</p>
+<p>*** Xem ngay <a href="https://forum.rappers.in/wsc/index.php?user/1087888-reactionexceed/" title="Mua ô tô cũ"><strong>Mua ô tô cũ</strong></a> mới nhất vừa được DailyXe cập nhật</p>
 
 <p style="text-align: center;"><img alt="" src="https://i.imgur.com/KBO3rr0.jpg" /></p>
 
